@@ -1,0 +1,1 @@
+# Estimation_of_Vacancy_Rate_of_Shopping_District_in_New_Town_Area
